@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GOBD930714MMCNTN02
+GOBD930714MMCNTN02
